@@ -1,5 +1,5 @@
 ## **𑣲 HAIII WELCOME TO MY GITHUB PAGE!! 𑣲**
-<sub> **I'm still learning on how to format this so don't mind how messy this is lol** </sub>
+<sub> **I'm still learning on how to format this so don't mind how messy this is lol** </sub>  
 <img width="399" height="381" alt="Zrzut ekranu 2025-10-21 211259" src="https://github.com/user-attachments/assets/16625b24-7e17-4c77-9c92-4c5bfa2812e1" />
 
 ### INTRODUCTION!!!
