@@ -1,9 +1,9 @@
 ## 𑣲 HAIII WELCOME TO MY GITHUB PAGE!! 𑣲
 - I'm still learning on how to format this so don't mind how messy this is lol
 
-- CHECK OUT MY STRAWPAGE!!!
-- PC ver: https://gribeanpilled.straw.page/
-- Mobile friendly ver: https://gribeanpilled.straw.page/home2
+ CHECK OUT MY STRAWPAGE!!!
+PC ver: https://gribeanpilled.straw.page/
+Mobile friendly ver: https://gribeanpilled.straw.page/home2
 
 - My name's Missy,, I go by any pronouns but mostly prefer she/they!!
 - I like drawing, making picmixes, messing around with blockbench,,,
@@ -14,8 +14,7 @@
 DRDT, Project: Eden's Garden, DRA/SDRA2, Hunter X Hunter, Pokemon, & more.......
 
 - REGARDING PONYTOWN!! 
-- C+H!! Feel free to apply any duo/ships to my character I don't care that much. (˶ᵔ ᵕ ᵔ˶)
-I'm a bit awkward so don't mind me :sob:
+C+H!! Feel free to apply any duo/ships to my character I don't care that much. (˶ᵔ ᵕ ᵔ˶)
 
 
 <!--
