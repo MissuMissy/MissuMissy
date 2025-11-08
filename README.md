@@ -1,7 +1,7 @@
 ## 𑣲 HAIII WELCOME TO MY GITHUB PAGE!! 𑣲
 - I'm still learning on how to format this so don't mind how messy this is lol
 
- CHECK OUT MY STRAWPAGE!!!
+###CHECK OUT MY STRAWPAGE!!!
 PC ver: https://gribeanpilled.straw.page/
 Mobile friendly ver: https://gribeanpilled.straw.page/home2
 
@@ -13,7 +13,7 @@ Mobile friendly ver: https://gribeanpilled.straw.page/home2
 - I like Life Series, Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, SirCutieYuki's RPs (Do NOT support him)
 DRDT, Project: Eden's Garden, DRA/SDRA2, Hunter X Hunter, Pokemon, & more.......
 
-- REGARDING PONYTOWN!! 
+###REGARDING PONYTOWN!! 
 C+H!! Feel free to apply any duo/ships to my character I don't care that much. (˶ᵔ ᵕ ᵔ˶)
 
 
