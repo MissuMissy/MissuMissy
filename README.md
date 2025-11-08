@@ -1,5 +1,12 @@
 ## 𑣲 HAIII WELCOME TO MY GITHUB PAGE!! 𑣲
 
+My name's Missy,, I go by any pronouns but mostly prefer she/they!!
+I'm a fanganronpa, MCYT/MCRP and Musicals fan!!
+
+
+AS FOR PONYTOWN!! 
+C+H!! Feel free to apply any duo/ships to my character I don't care that much. (˶ᵔ ᵕ ᵔ˶)
+
 <!--
 **MissuMissy/MissuMissy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
