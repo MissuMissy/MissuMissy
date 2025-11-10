@@ -7,14 +7,14 @@
 My name's Missy,, I go by any pronouns but mostly prefer she/they!!  
 I like drawing, making picmixes, messing around with blockbench,,,  
 I'm a fanganronpa, musicals and MCYT/MCRP fan!!   
-I'm a multishipper & really easily convinced lmfao,,,,,,,, my favs r Gribeans, Peskyrot, Grumbo, v!Appletree, Falec, Celesdere & Evamon  
+I'm a multishipper & really easily convinced lmfao,,,,,,,, my favs r Gribeans, Peskyrot, Grumbo, v!Appletree, Falec, Celesdere, Areivid & Evamon  
 
-I like Life Series, Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, SirCutieYuki's RPs (Do NOT support him)
+I like Life Series, HC, VampiresSMP, Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, SirCutieYuki's RPs (Do NOT support him)
 DRDT, Project: Eden's Garden, DRA/SDRA2, Hunter X Hunter, Pokemon, & more.......
 
 ### REGARDING PONYTOWN!! ⋆. 𐙚 ˚  
-C+H!! Feel free to apply any duo/ships to my character I don't care that much. (˶ᵔ ᵕ ᵔ˶)  
-
+C+H!! Feel free to apply any duo/ships to my character I don't care that much. (˶ᵔ ᵕ ᵔ˶)    
+Tell me in some way if you are so I can react accordingly lol    
 ### CHECK OUT MY STRAWPAGE!!! ♡⸝⸝   
 PC ver: https://gribeanpilled.straw.page/  
 Mobile friendly ver: https://gribeanpilled.straw.page/home2  
