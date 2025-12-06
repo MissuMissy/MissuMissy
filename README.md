@@ -9,7 +9,7 @@ I like drawing, making picmixes, messing around with blockbench,,,
 I'm a fanganronpa, musicals and MCYT/MCRP fan!!   
 I'm a multishipper & really easily convinced lmfao,,,,,,,, my favs r Gribeans, Peskyrot, Grumbo, v!Appletree, Falec, Celesdere, Areivid & Evamon  
 
-I like Life Series, HC, VampiresSMP, CONTENTSMP (doctor4t main), Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, SirCutieYuki's RPs (Do NOT support him)   
+I like Life Series, HC, VampiresSMP, CONTENTSMP & doctor4t in general, Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, SirCutieYuki's RPs (Do NOT support him)   
 DRDT, Project: Eden's Garden, DRA/SDRA2, Hunter X Hunter, The Apothecary Diaries, Pokemon, & more.......
 
 ### REGARDING PONYTOWN!! ⋆. 𐙚 ˚  
