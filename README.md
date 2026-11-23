@@ -18,8 +18,8 @@ Tell me in some way if you are so I can react accordingly lol
 ### CHECK OUT MY STRAWPAGE!!! ♡⸝⸝
 https://missyoverload.straw.page (WIP!!!)
 
-(I also have an old outdated one u might recognize me by) V
-https://gribeanspilled.straw.page/
+<small>(I also have an old outdated one u might recognize me by) V<br>
+https://gribeanspilled.straw.page/ </small>
 
 
 <!--
