@@ -9,15 +9,17 @@ I like drawing, making picmixes, messing around with blockbench,,,
 I'm a fanganronpa, musicals and MCYT/MCRP fan!!   
 I'm a multishipper & really easily convinced lmfao,,,,,,,, my favs r Gribeans, Peskyrot, Grumbo, v!Appletree, Falec, Celesdere, Areivid & Evamon  
 
-I like Life Series, HC, VampiresSMP, CONTENTSMP & doctor4t in general, Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, SirCutieYuki's RPs (Do NOT support him)   
-DRDT, Project: Eden's Garden, DRA/SDRA2, Hunter X Hunter, The Apothecary Diaries, Pokemon, & more.......
+I like Life Series, The Flight SMP, HC, Vampires SMP, Content SMP & doctor4t in general, Aphmau RPs, ItsFunneh's YHS, LadyMania's Yandere Camp, 
+DRDT, Project: Eden's Garden, DRA/SDRA2, Hunter X Hunter, The Apothecary Diaries, Pokemon, Gachiakuta & more.......
 
 ### REGARDING PONYTOWN!! ⋆. 𐙚 ˚  
 C+H!! Feel free to apply any duo/ships to my character I don't care that much. (I care a lot please do it pls) (˶ᵔ ᵕ ᵔ˶)    
 Tell me in some way if you are so I can react accordingly lol    
-### CHECK OUT MY STRAWPAGE!!! ♡⸝⸝   
-PC ver: https://gribeanpilled.straw.page/  
-Mobile friendly ver: https://gribeanpilled.straw.page/home2  
+### CHECK OUT MY STRAWPAGE!!! ♡⸝⸝
+https://missyoverload.straw.page (WIP!!!)
+
+(I also have an old outdated one u might recognize me by) V
+https://gribeanspilled.straw.page/
 
 
 <!--
